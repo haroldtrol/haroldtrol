@@ -1,5 +1,5 @@
 # 💫 About Me:
-Un aprendiz apasionado, desarrollador en formación y soñador de por vida 🚀<br><br><br>🌱 Estoy en un camino constante para dominar el desarrollo web y ampliar mis conocimientos en programación cada día.  <br>- 💡 Creo que con curiosidad y perseverancia, cada desafío es una oportunidad para crecer.  <br>- 📫 No dudes en contactarme en **[tu-email@example.com]** — ¡creemos, innovemos e inspiremos juntos!  <br>- ⚡ Dato curioso: La comida y la música son el combustible de mi creatividad y pasión por la vida 🎶🍕  <br>
+Un aprendiz apasionado, desarrollador en formación y soñador de por vida 🚀<br><br><br>🌱 Estoy en un camino constante para dominar el desarrollo web y ampliar mis conocimientos en programación cada día.  <br>- 💡 Creo que con curiosidad y perseverancia, cada desafío es una oportunidad para crecer.  <br>- 📫 No dudes en contactarme en **[haroldbueno15@gmail.com]** — ¡creemos, innovemos e inspiremos juntos!  <br>- ⚡ Dato curioso: La comida y la música son el combustible de mi creatividad y pasión por la vida 🎶🍕  <br>
 
 
 ## 🌐 Socials:
